@@ -3,7 +3,7 @@
 ### Recurso de aprendizaje de Cultura Digital 
 
 
-Autor: 
+Autor: Ahmed Aliouat Fodil
 
 
 Fecha: 
